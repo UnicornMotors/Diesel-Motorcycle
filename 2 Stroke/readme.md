@@ -1,0 +1,1 @@
+- [Two Stroke Diesel Moped With Variable Compression! 18cc!](https://youtu.be/SzouISFTHvM)
